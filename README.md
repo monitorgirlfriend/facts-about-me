@@ -1,6 +1,6 @@
 <p align="right"><img src="https://64.media.tumblr.com/e8c030c4c1ab38b5ff1b597f817822b6/0eaab4e676da57f3-26/s1280x1920/175f0085f1f07c37a9ffeeaa8a83c197689dcd36.gifv" align="right" height="300" width="400"></p>
 <p>#2 biggest zyn kiryu fan<br>
-schizophrenic, autistic, system, adhd (all diagnosed)<br>
+schizotypal, autistic, system, adhd (all diagnosed)<br>
 <br>
 i am also physically disabled but that is less important<br>
 <sub>the only thing you need to know is that i am visually impaired</sub><br><sup>and therefore get headaches/migraines very easily</sup><br>
